@@ -1,1 +1,3 @@
-⚡ Fun fact: You just wasted about 1 seconds of your life reading my readme file, you're welcome :)
+  A dumb kid making random projects.
+  One of the stupid projects:
+  bingewatchings.com
