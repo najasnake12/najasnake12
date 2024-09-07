@@ -1,4 +1,3 @@
 A dumb kid making random projects.
 
-⚠️ Script Kiddie Alert ⚠️
-(relax not for malicious purposes)
+I'm not new to GitHub I just made a new account don't hate ;)
