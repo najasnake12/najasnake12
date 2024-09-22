@@ -1,4 +1,4 @@
-I'm not new to GitHub I just made a new account ;)
+I'm not new to github, I just made a new account :)
 
 🥊Muay Thai On Top👊
 
