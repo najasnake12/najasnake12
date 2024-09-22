@@ -1,6 +1,6 @@
 I'm not new to GitHub I just made a new account ;)
 
-https://img.shields.io/github/followers/najasnake12
+🥊Muay Thai On Top👊
 
 ![Static Badge](https://img.shields.io/badge/Contribute--to--just--a--doggie-blue)
 
